@@ -1,0 +1,1 @@
+# javamagazine_2018
